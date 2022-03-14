@@ -1,2 +1,2 @@
-# Webdesignerarosales.github.io.
+# Webdesignerarosales.github.io
 Website Public
